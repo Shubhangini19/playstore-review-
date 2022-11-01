@@ -1,1 +1,1 @@
-# playstore-review-
+The debut of Google Play was on March 6, 2012, which included Android Market, indicated a change in Google’s approach to digital distribution. On the Google’s approach to digital distribution. On the Google Play Store, there are more than 5 million applications. With more than 3 billion active users in 190 countries, Android is the most widely used operating system in the world. In order for an App to be successful on the Play Store, a lot of designers and developers work on it.# playstore-review-
